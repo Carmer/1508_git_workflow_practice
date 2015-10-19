@@ -1,2 +1,4 @@
 .
-Edgar Duran - 9
+Edgar Duran -
+
+Merge conflict resolution
