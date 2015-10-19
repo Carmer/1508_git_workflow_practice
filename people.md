@@ -1,4 +1,2 @@
 .
-Jesus Christ
-Mohammed
-John Slota
+Everything is really awesome
