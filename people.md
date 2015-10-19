@@ -1,2 +1,4 @@
 .
-Test test test burritos.
+
+Edgar Duran - 9
+Robbie Lane - 4
