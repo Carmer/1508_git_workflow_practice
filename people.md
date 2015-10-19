@@ -1,4 +1,5 @@
 .
 Edgar Duran - 9
-
-Matt S - "write some text...."
+Robbie Lane - 4
+Matt S - 18
+Merge conflict resolution
