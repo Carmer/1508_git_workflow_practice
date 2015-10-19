@@ -1,2 +1,4 @@
 .
-Torie
+Edgar Duran - 9
+Robbie Lane - 4
+Torie - 12
