@@ -19,7 +19,7 @@ Edgar Duran -
 Robbie Lane - 4
 Torie - 12
 RossedFort is da 💣
-Ryan Johnson - blah blah blah blah blah blah
+Ryan Johnson - 4444
 Edgar Duran - 9
 Aaron Careaga - 3
 
@@ -29,35 +29,7 @@ hangin pictures on my wall every Saturday
 Rap Attack, Mr. MAGIC MARLEY MAR!
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 Jhun likes sushi and burritos.
-
-
-
-
-
-
-
-
-
-
 
 
 Everything is awesome
