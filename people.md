@@ -47,7 +47,7 @@ Rap Attack, Mr. MAGIC MARLEY MAR!
 
 
 
-Jhun likes sushi and burritos.
+Jhun likes sushi and burritos and tacos and shrimp.
 
 
 
