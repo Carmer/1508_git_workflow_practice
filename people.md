@@ -28,6 +28,14 @@ Salt n Peppa and Heavy D up in the limousine,
 hangin pictures on my wall every Saturday
 Rap Attack, Mr. MAGIC MARLEY MAR!
 
+I use to let my tape pop
+condos in queens,
+sold out shows to hear biggie small speak
+i'm living without fear, 24 carrots in my baby girls ear
+lunches, interviews by the pool, considered the fool cuz I dropped out of highschool,
+stereotypes of a black male misunderstood and it's still all good
+and if you don't know, now you know
+
 
 
 
